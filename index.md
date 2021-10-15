@@ -1,4 +1,4 @@
-### Hi! Welcome to my Homepage :wave:
+### Hi! Welcome to my Homepage 👋
 
 ### Here's a little about me:
 
